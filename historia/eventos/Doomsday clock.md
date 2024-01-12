@@ -1,0 +1,5 @@
+## Doomsday Clock
+
+Doomsday Clock es parte de la iniciativa desde que empezó con Universo DC: Renacimiento #1 y que continuó con eventos relacionados como Superman Renacido y La Chapa.2​2​ El cómic también introduce personajes de Watchmen (la novela gráfica Alan Moore y Dave Gibbons) junto con nuevos personajes creados por Geoff Johns y Gary Frank que serán incluidos en el universo de Watchmen, pero sobre todo incluirá a los integrantes más importantes de la Liga de la Justicia3​
+
+Doomsday Clock ya había sido planeado a inicios del año 2017, en el epílogo de The Button, en un tipo de "páginas teaser" que muestra el Pin del Comediante que está flotando en el espacio y en seguida, al acercarse poco a poco hacia la sangre, en la página siguiente, este se va alejando revelando el logotipo de Superman, anunciando que la próxima saga se llamará Doomsday Clock, con el mismo tipo de letra usada para Watchmen, junto con la frase "Hay venenos que ciegan y hay venenos que te abren los ojos", proveniente del escritor y dramaturgo sueco August Strindberg.4​
